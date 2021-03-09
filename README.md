@@ -1,2 +1,1 @@
-# Lone_Wolf26
-Just me and my thoughts 
+Content for non-telepathic human.
